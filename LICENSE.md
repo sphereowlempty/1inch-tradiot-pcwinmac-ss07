@@ -1,4 +1,4 @@
-# 
+# Premium 1inch trading bot extensões for Mac OS | VIP 1inch trading bot extensões for PC Windows. Featuring negociação de futuros and análise de momento — optimized for maximum performance.
 
 
 
